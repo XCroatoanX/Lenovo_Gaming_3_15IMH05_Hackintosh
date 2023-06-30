@@ -1,0 +1,1 @@
+# Lenovo_Gaming_3_15IMH05_Hackintosh
